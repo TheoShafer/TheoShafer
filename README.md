@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Theo.
+- 👀 I’m interested in videogames, cars, and more.
+- 📫 How to reach me: theo.shafer22@gmail.com
